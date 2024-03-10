@@ -30,4 +30,5 @@
 
 5. **外國科技接軌的重要性**：雖然討論中提到了台灣與外國科技接軌的重要性，但也有人可能不認同這一觀點，認為台灣應該注重自主創新而不是依賴外國技術。
 
-![](https://giphy.com/gifs/ufc-middle-finger-for-you-alexandre-pantoja-wgts1jTI7vmy9M0XlP)
+***     
+![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ3AzZWl3NWR4N3Fxdm52enYyc2hsczA4d3dkOGdpaGw1eXJ4em93NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/wgts1jTI7vmy9M0XlP/giphy.gif)
